@@ -40,6 +40,6 @@ Con deseos de colaborar y compartir conocimientos a través de GitHub y seguir d
 
 Si deseas contactarme, puedes hacerlo a través de:
 
-📧: cecirib@gmail.com
+📧: **cecirib@gmail.com**
 
-¡Gracias por visitar mi perfil de GitHub!
+**¡Gracias por visitar mi perfil de GitHub!**
